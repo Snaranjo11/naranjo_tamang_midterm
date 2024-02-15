@@ -5,6 +5,6 @@ Summer vs Winter
 Which is better?
 
 Santiago Naranjo
-Monika Tamang
+Madika Tamang
 
 Midterm
