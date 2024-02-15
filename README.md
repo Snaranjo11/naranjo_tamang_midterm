@@ -1,10 +1,12 @@
 # naranjo_tamang_midterm
 
-Summer Vs Winter
 
-Which is better
+Summer vs Winter
 
-Madika Tamang
+Which is better?
+
 Santiago Naranjo
+Monika Tamang
 
 Midterm
+
